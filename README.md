@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rayynot
+- 👀 Coding and Morse code, music etc..
+- 🌱 Coding and Morse code
+- 💞️ nothing here lol
+- 📫 How reach me is on discor!
